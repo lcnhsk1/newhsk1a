@@ -1,0 +1,2 @@
+# newhsk1a
+LCN HSK1 TABEL KOSAKATA
